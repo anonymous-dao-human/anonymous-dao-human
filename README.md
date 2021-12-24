@@ -1,6 +1,6 @@
 👋 Hi! 
 
-We're the Decentralized Cures DAO.  (DAO stands for decentralized autonomous organization.)  
+We're the Anonymous decentralized autonomous organization. 
 
 Our mission is to end suffering caused by chronic diseases affecting billions of people. 
 
